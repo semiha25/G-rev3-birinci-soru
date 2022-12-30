@@ -1,0 +1,1 @@
+# G-rev3-birinci-soru
